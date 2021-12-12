@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @itsluoliveira
-- 👀 I’m interested in music, travelling and meet new people
+- 👀 I’m interested in music, travelling and meeting new people
 - 🌱 I’m currently learning coding
 - 💞️ I’m a flight attendant
 - 📫 Reach me on instagram @itsluoliveira
